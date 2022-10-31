@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Lizzilo
-- 👀 I’m interested in creativity
+- 👀 I’m interested in SEO, Web & Copy
 - 🌱 I’m currently learning web development
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me lizaodishl@gmail.com
